@@ -8,3 +8,4 @@
 - [CSGO 2](https://www.counter-strike.net/cs2)
 - [Rainbow Six Siege](https://www.ubisoft.com/en-us/game/rainbow-six/siege)
 - [Splitgate 2](https://www.splitgate.com/)
+**I have been ranked Diamond+ in 3/5 of these games**
